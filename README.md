@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **yashjha9154@gmail.com**
 
-- ⚡ Fun fact **I think I am better than the best and a Quick learner, who shows actions more than words**
+- ⚡ Fun fact **I think I am better than the best and a Quick learner, who proves with his actions**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
